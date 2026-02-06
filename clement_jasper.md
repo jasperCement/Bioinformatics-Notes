@@ -1,0 +1,1 @@
+And in the darkness of that which is golden those fruit shall split open to reveal the revelation of the fatal softenss in the earth.
